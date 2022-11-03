@@ -1,0 +1,3 @@
+- Hello! I'm @14505ALEX!
+- I'm an amateur self-taught coder!
+- Currently learning all the ropes possible!
